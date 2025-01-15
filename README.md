@@ -16,8 +16,6 @@ More about SAYNA : https://sayna.io <br>
 More about me : https://www.linkedin.com/in/samiratousalifou/
 <br><br>
 
---> To the pleasure of exchanging and / or collaborate together <--
-
 ## Hi there 👋
 
 <!--
